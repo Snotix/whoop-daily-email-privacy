@@ -1,0 +1,1 @@
+# whoop-daily-email-privacy
